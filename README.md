@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anonymous77815
-- 👀 I’m interested in Coddign and ethical hacking
+- 👀 I’m interested in Coding and ethical hacking
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me Discord Not_Arya77#9972
